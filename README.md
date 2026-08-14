@@ -3,7 +3,7 @@
 **Premium Video Editor · No Watermark · All Features Unlocked · Pro Tools for Free**
 <img width="660" height="376" alt="image" src="https://github.com/user-attachments/assets/5ae764d3-4592-49c8-98c6-bd763fcf4f29" />
 
----
+--
 
 <div align="center">
 
